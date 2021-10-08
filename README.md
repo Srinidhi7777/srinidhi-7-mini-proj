@@ -1,0 +1,1 @@
+# srinidhi-7-mini-proj
